@@ -21,16 +21,17 @@ Are they active, or are they not?
 
 ## UserArham - Active 🟢
 
-<img width="739" height="147" alt="image" src="https://github.com/user-attachments/assets/cee366d9-f079-4165-b896-908daeea37f6" />
+<img width="945" height="542" alt="image" src="https://github.com/user-attachments/assets/bd153e94-1091-4dcc-9865-bfe9cc4d9272" />
 
-_Snapped at November 24, 2026 10:30 PM EST time._
+_Snapped at November 27, 2026 5:26 PM EST time._
 
 
 ## TheCookeringYT - Partially Inactive 🟠
 
-<img width="735" height="150" alt="image" src="https://github.com/user-attachments/assets/03f33450-fed2-4bf5-a2aa-aa5f89b55843" />
+<img width="980" height="225" alt="image" src="https://github.com/user-attachments/assets/33d24cd8-610a-44f5-b2ff-f76fe92a7c14" />
 
-_Snapped at November 24, 2026 10:32 PM EST time._
+
+_Snapped at November 27, 2026 5:26 PM EST time._
 
 
 # Followers
