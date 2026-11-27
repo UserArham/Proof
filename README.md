@@ -37,9 +37,10 @@ _Snapped at November 24, 2026 10:32 PM EST time._
 
 How much does a user have?
 
-## UserArham - 76 Followers 😊
+## UserArham - 83 Followers 😆
 
-<img width="361" height="618" alt="image" src="https://github.com/user-attachments/assets/eba290c4-c2e0-4b66-bf56-1f584df5ef27" />
+<img width="326" height="625" alt="image" src="https://github.com/user-attachments/assets/513552d6-6930-4e3a-af26-a415b3ab5288" />
+
 
 ## TheCookeringYT - 9 Followers 😣
 
